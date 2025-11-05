@@ -1,4 +1,4 @@
-#Privacy Policy – FloatBrowse
+# Privacy Policy – FloatBrowse
 
 Effective Date: November 2025
 
